@@ -15,3 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 Thank you.
+
+Kalkidan Kebede
+Graduated Benjamin Banneker Academic High School - 2023
+Northeastern University - BS in CS 2027
